@@ -1,6 +1,6 @@
 Hello, everyone,
 
-My name is Luiz Augusto Passarinho, and I'm an 18-year-old young individual actively seeking work opportunities while also aspiring to grow within a company. I pride myself on being hardworking and detail-oriented, consistently striving to enhance my skills and knowledge.
+My name is Luiz Augusto Passarinho, and I'm an 21-year-old young individual actively seeking work opportunities while also aspiring to grow within a company. I pride myself on being hardworking and detail-oriented, consistently striving to enhance my skills and knowledge.
 
 My determination and the pursuit of excellence drive me to tackle each challenge with unwavering dedication. I firmly believe that learning is a lifelong journey, which is why I make it a priority to stay up-to-date with the latest trends and innovations in my field of interest.
 
